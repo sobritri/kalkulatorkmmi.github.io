@@ -1,1 +1,0 @@
-# kalkulatorkmmi.github.io
